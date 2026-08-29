@@ -22,5 +22,10 @@
 декабрь 2022 г. — «PROлендинги на GetCourse» от GetHelpers»<br>
 февраль 2023 г. — «PROавтовебинарные воронки на GetCourse 2.0» от GetHelpers<br>
 апрель 2023 г. — «Специалист по чат-ботам» от GetHelpers»<br>
+июнь 2023 г. - «Tilda START»<br>
+сентябрь 2023 г. - «Tilda PRO»<br>
+
+
+
 
 ...
